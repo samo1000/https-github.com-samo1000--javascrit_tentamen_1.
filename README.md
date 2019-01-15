@@ -1,0 +1,1 @@
+# https-github.com-samo1000--javascrit_tentamen_1.
